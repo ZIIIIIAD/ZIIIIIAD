@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Sayad
+- 👀 I’m interested in many things tbh
+- 🌱 I’m currently learning in G10
+- 💞️ I’m looking for someone
+- 📫 How to reach me, find a ladder.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I got a dark humor
